@@ -166,6 +166,7 @@ https://papers.ssrn.com/sol3/papers.cfm?abstract_id=5945614
 - Research Contributor
 
 ### Leadership Positions
+- Managing Director – UWC IT Society (2026 – current)
 - Treasurer – UWC Physics Society (2024 – 2025)
 - President – Limpopo Society, UWC (2024 – 2025)
 
